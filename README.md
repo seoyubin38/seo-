@@ -1,1 +1,1 @@
-seo univers
+seo universe
